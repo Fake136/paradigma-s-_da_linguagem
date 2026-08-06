@@ -1,0 +1,1 @@
+# paradigma-s-_da_linguagem
